@@ -87,5 +87,8 @@ Old skins that I either don't/rarely use or are here for archive purposes
 # [- # 『Arnold24x24』 Hatsune Miku 2.0 ~](https://drive.google.com/u/0/uc?id=1PQ-kbf1cgo8peqSnA7sVuKzh2N5pZ4q5&export=download)
 ![screenshot002](https://github.com/Lixarious/LixariousSkins/assets/8029870/affa5911-42e1-4343-b272-a6a083beb946)
 
+# [- #lixabluereimu - DT](https://drive.google.com/file/d/1rSQ2trrrLC4TRE3OcN_5TyRwr-vFdmj1/view?usp=sharing)
+![screenshot003](https://github.com/Lixarious/LixariousSkins/assets/8029870/eb6228ca-15b6-412e-b17d-4cf37ad0f905)
+
 # [- xLisqu 1.0 -](https://drive.google.com/file/d/1vNQnRdSbs7X1x4Un6VgjWDTgDwl_ZHDh/view?usp=drive_link) (early 2016 XDDD)
 ![screenshot069](https://github.com/Lixarious/LixariousSkins/assets/8029870/d447b831-bf1a-4fae-b82a-57531e55426d)
