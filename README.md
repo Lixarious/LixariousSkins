@@ -87,8 +87,14 @@ Old skins that I either don't/rarely use or are here for archive purposes
 # [Azerino 08.09.2015](https://drive.google.com/drive/folders/1Ix5ga0qhYdR3kcB1VyqSAkP6Rlad9HD3?usp=drive_link)
 ![screenshot001](https://github.com/Lixarious/LixariousSkins/assets/8029870/f39d9524-b057-469c-8db8-2a4edcf97b9e)
 
+# [Rafis 2017-08-21](https://mega.nz/folder/iN8i1ZSB#Tc8AoVpwaPXUQrR8fImp6Q)
+![screenshot011](https://github.com/Lixarious/LixariousSkins/assets/8029870/5d86a619-16c3-4851-89e6-f016bd9b671b)
+
 # [- # 『Arnold24x24』 Hatsune Miku 2.0 ~](https://drive.google.com/u/0/uc?id=1PQ-kbf1cgo8peqSnA7sVuKzh2N5pZ4q5&export=download)
 ![screenshot002](https://github.com/Lixarious/LixariousSkins/assets/8029870/affa5911-42e1-4343-b272-a6a083beb946)
+
+# [Cookiezi 35 2018-10-27](http://bit.ly/2P4P6qm)
+![screenshot012](https://github.com/Lixarious/LixariousSkins/assets/8029870/bb61f76a-76e2-4e0e-9faf-8667df92dff9)
 
 # [- # A DT Lixarious 2018](https://drive.google.com/file/d/1211nlrmgAEj4ROlUJ0YQ57L3qskziEOO/view?usp=drive_link)
 ![screenshot008](https://github.com/Lixarious/LixariousSkins/assets/8029870/a7be8fd5-3f19-42f9-87e2-c48bb968ee5b)
