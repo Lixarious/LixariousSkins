@@ -93,6 +93,9 @@ Old skins that I either don't/rarely use or are here for archive purposes
 # [- # A DT Lixarious 2018](https://drive.google.com/file/d/1211nlrmgAEj4ROlUJ0YQ57L3qskziEOO/view?usp=drive_link)
 ![screenshot008](https://github.com/Lixarious/LixariousSkins/assets/8029870/a7be8fd5-3f19-42f9-87e2-c48bb968ee5b)
 
+# [- # A DT Lixarious 2019](https://drive.google.com/file/d/1tiW26g1P92y-B-XtYW1WGEnr0-H-kzNX/view?usp=drive_link)
+![screenshot009](https://github.com/Lixarious/LixariousSkins/assets/8029870/226ac236-c940-4b32-9d5d-0d67ed5a6c57)
+
 # [- #lixabluereimu - DT](https://drive.google.com/file/d/1rSQ2trrrLC4TRE3OcN_5TyRwr-vFdmj1/view?usp=sharing)
 ![screenshot003](https://github.com/Lixarious/LixariousSkins/assets/8029870/eb6228ca-15b6-412e-b17d-4cf37ad0f905)
 
