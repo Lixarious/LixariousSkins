@@ -108,5 +108,8 @@ Old skins that I either don't/rarely use or are here for archive purposes
 # [SaymonBH_5NewHDHR](https://drive.google.com/file/d/1UYBdZNtE4JtpkEAa-H9MTYndJuvcIeFQ/view?usp=drive_link)
 ![screenshot007](https://github.com/Lixarious/LixariousSkins/assets/8029870/aab675dd-2bdc-44d3-8207-7b3287b5c9b1)
 
+# [- # A NOMOD;HR;HD Lixarious 2019](https://drive.google.com/file/d/1QaAjhslwrGE_1F1sJluq35uT-CZ0IOXu/view?usp=drive_link)
+![screenshot010](https://github.com/Lixarious/LixariousSkins/assets/8029870/e8662d2c-1f99-4001-8e82-06eb44073ac6)
+
 # [- xLisqu 1.0 -](https://drive.google.com/file/d/1vNQnRdSbs7X1x4Un6VgjWDTgDwl_ZHDh/view?usp=drive_link) (early 2016 XDDD)
 ![screenshot069](https://github.com/Lixarious/LixariousSkins/assets/8029870/d447b831-bf1a-4fae-b82a-57531e55426d)
