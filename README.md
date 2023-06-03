@@ -32,37 +32,37 @@ Skins that are at the top, are those that I use most often
 
 
 # [- newnachi DT](https://drive.google.com/file/d/1S3lVgNKwUrg8HPMTq4zXyAXSBCAdOFl_/view) (since 2022)
-![screenshot067](https://github.com/Lixarious/LixariousSkins/assets/8029870/50dd65a8-8d5d-4d25-bdab-f7cff630bda7)
+![screenshot067](https://github.com/Lixarious/LixariousSkins/assets/8029870/9c1ec166-b9ff-4cbf-a44d-b22e56844cda)
 
 # [-                              newnachi 2.2](https://drive.google.com/file/d/14Yr-ubNgywLD8GHTPsfuKZiVIlGBPHUx/view?usp=sharing) (2023)
-![screenshot078](https://github.com/Lixarious/LixariousSkins/assets/8029870/ffc44bab-3948-4f07-90e3-c8b030eda4b2)
+![screenshot078](https://github.com/Lixarious/LixariousSkins/assets/8029870/37e94dca-0e58-4a22-ac10-876d40b5e084)
 
 # [-                    noel-simp-now](https://drive.google.com/file/d/1AGCt9Bbd8OBqqa-cKBC0e0hBe79kIPTX/view?usp=drive_link) (since 2022)
-![screenshot075](https://github.com/Lixarious/LixariousSkins/assets/8029870/5a306456-dca3-4c22-8689-55d14431cf68)
+![screenshot075](https://github.com/Lixarious/LixariousSkins/assets/8029870/243f6da2-06dd-430f-9d01-2a9d025ed9ea)
 
 # [-             noweeb    #LixaAkcel](https://drive.google.com/file/d/1OZj78pqd0Egnva7LaIv5hIMcbZxR7ItX/view?usp=drive_link) (2023)
-![screenshot066](https://github.com/Lixarious/LixariousSkins/assets/8029870/d28e678b-617e-468d-bafe-8e2e8c0293b3)
+![screenshot066](https://github.com/Lixarious/LixariousSkins/assets/8029870/147c60ec-769d-4401-a80e-91e4164d5240)
 
 # [Rafis+HDDT (Lixarious Edit)](https://drive.google.com/file/d/1tVYkweM58dIhwV9GMPqfdfix-ks5Izim/view?usp=drive_link) (since 2022)
-![screenshot070](https://github.com/Lixarious/LixariousSkins/assets/8029870/7549155b-03dd-4e68-afda-874d3dfed430)
+![screenshot070](https://github.com/Lixarious/LixariousSkins/assets/8029870/dd4c5d9e-52d3-4dde-8cd9-654622479e04)
 
 # [Cookiezi 23 2017-08-31 DT](https://melonsoda0730.s-ul.eu/GmiyXtwx) (since 2018)
-![screenshot077](https://github.com/Lixarious/LixariousSkins/assets/8029870/22570df9-63a2-4ad5-904d-388643e275e2)
+![screenshot077](https://github.com/Lixarious/LixariousSkins/assets/8029870/4edd9d7e-54ee-447b-96d8-3b53639bc74f)
 
 # [- 《CK》 WhiteCat 2.1 ~ old colours](https://drive.google.com/file/d/1q9g3KoE272_K7SQ7NfUGl8ZhVV65Bl4L/view) (since 2022)
-![screenshot074](https://github.com/Lixarious/LixariousSkins/assets/8029870/78220d54-c543-4699-8445-e4bf7ee4bf66)
+![screenshot074](https://github.com/Lixarious/LixariousSkins/assets/8029870/e8413098-99bf-4069-95cf-41cfbdc8f17e)
 
 # [- YUGEN -](https://tetsui.s-ul.eu/t3yyAk3g2QugMs9O) (since 2017)
-![screenshot072](https://github.com/Lixarious/LixariousSkins/assets/8029870/0f5b88ba-9447-4535-ae98-51fac0cbdada)
+![screenshot072](https://github.com/Lixarious/LixariousSkins/assets/8029870/71aa603b-9536-41ff-953c-3515270c0b22)
 
 # [aetrnaaberrateFujiwara v3](https://drive.google.com/file/d/194QK_MqUewN6HFvw1B8PopdSHDV0QeKf/view) (since 2022)
-![screenshot076](https://github.com/Lixarious/LixariousSkins/assets/8029870/0c3ab274-e34e-4f05-a39e-68ba8137a066)
+![screenshot076](https://github.com/Lixarious/LixariousSkins/assets/8029870/7057a59c-3b5c-4b67-b35e-edde1b9d8a60)
 
 # [404 SkinNoTFound v2](https://drive.google.com/file/d/1bTLs2-kxiEHDt5VQR8ZcfCFEeNoDTbVU/view?usp=drive_link) (since 2020)
-![screenshot073](https://github.com/Lixarious/LixariousSkins/assets/8029870/d54eea82-3664-49a3-843a-bf4432524a59)
+![screenshot073](https://github.com/Lixarious/LixariousSkins/assets/8029870/945705c8-826f-4a6e-9a2e-6d61cc07bd1a)
 
 # [WaksonBlue](https://circle-people.com/wp-content/Skins/Wakson/[%20Wakson%20]%202017-11-10.osk) (since 2018)
-![screenshot071](https://github.com/Lixarious/LixariousSkins/assets/8029870/f2b2c2c2-6b72-43c2-aca6-14ebd21ba2f4)
+![screenshot071](https://github.com/Lixarious/LixariousSkins/assets/8029870/28b4f45e-489d-4b60-9d0d-8c6e395a9c61)
 
 
 
@@ -79,7 +79,7 @@ Old skins that I either don't/rarely use or are here for archive purposes
 
 
 # [-     #LixaSenko DT 2.4 (2020)](https://drive.google.com/file/d/1tVYkweM58dIhwV9GMPqfdfix-ks5Izim/view?usp=drive_link)
-![screenshot068](https://github.com/Lixarious/LixariousSkins/assets/8029870/64d5d38d-cc46-4f67-9b4f-0d4e36480642)
+![screenshot068](https://github.com/Lixarious/LixariousSkins/assets/8029870/380e9a9e-123b-465c-8b4e-742d75d2e2fc)
 
 # [- xLisqu 1.0 -](https://drive.google.com/file/d/1vNQnRdSbs7X1x4Un6VgjWDTgDwl_ZHDh/view?usp=drive_link) (early 2016 XDDD)
-![screenshot069](https://github.com/Lixarious/LixariousSkins/assets/8029870/28b2e20f-9ff1-4934-8e17-56abc47b250b)
+![screenshot069](https://github.com/Lixarious/LixariousSkins/assets/8029870/d447b831-bf1a-4fae-b82a-57531e55426d)
