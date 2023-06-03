@@ -99,5 +99,8 @@ Old skins that I either don't/rarely use or are here for archive purposes
 # [- #lixachi collab allround](https://drive.google.com/u/0/uc?id=1pjRWQgagYGl0bsuZC40QZGVh6NWAgufl&export=download)
 ![screenshot005](https://github.com/Lixarious/LixariousSkins/assets/8029870/74f4809f-b543-4f21-b329-5727ca7be355)
 
+# [SaymonBH_5NewHDHR](https://drive.google.com/file/d/1UYBdZNtE4JtpkEAa-H9MTYndJuvcIeFQ/view?usp=drive_link)
+![screenshot007](https://github.com/Lixarious/LixariousSkins/assets/8029870/aab675dd-2bdc-44d3-8207-7b3287b5c9b1)
+
 # [- xLisqu 1.0 -](https://drive.google.com/file/d/1vNQnRdSbs7X1x4Un6VgjWDTgDwl_ZHDh/view?usp=drive_link) (early 2016 XDDD)
 ![screenshot069](https://github.com/Lixarious/LixariousSkins/assets/8029870/d447b831-bf1a-4fae-b82a-57531e55426d)
