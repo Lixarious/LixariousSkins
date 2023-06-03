@@ -93,5 +93,8 @@ Old skins that I either don't/rarely use or are here for archive purposes
 # [- #lixachi collab old dt](https://drive.google.com/u/0/uc?id=125q3YO0d3aj2JL4nzQvU49x6nTPfqPZO&export=download)
 ![screenshot004](https://github.com/Lixarious/LixariousSkins/assets/8029870/50ff4bd6-ffaa-4e5f-aa18-89f9a424460b)
 
+# [- #lixachi collab allround](https://drive.google.com/u/0/uc?id=1pjRWQgagYGl0bsuZC40QZGVh6NWAgufl&export=download)
+![screenshot005](https://github.com/Lixarious/LixariousSkins/assets/8029870/74f4809f-b543-4f21-b329-5727ca7be355)
+
 # [- xLisqu 1.0 -](https://drive.google.com/file/d/1vNQnRdSbs7X1x4Un6VgjWDTgDwl_ZHDh/view?usp=drive_link) (early 2016 XDDD)
 ![screenshot069](https://github.com/Lixarious/LixariousSkins/assets/8029870/d447b831-bf1a-4fae-b82a-57531e55426d)
