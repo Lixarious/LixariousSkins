@@ -81,6 +81,9 @@ Old skins that I either don't/rarely use or are here for archive purposes
 # [-     #LixaSenko DT 2.4 (2020)](https://drive.google.com/file/d/1tVYkweM58dIhwV9GMPqfdfix-ks5Izim/view?usp=drive_link)
 ![screenshot068](https://github.com/Lixarious/LixariousSkins/assets/8029870/380e9a9e-123b-465c-8b4e-742d75d2e2fc)
 
+# [filsdelama 2017-10-14](https://circle-people.com/wp-content/Skins/filsdelama/filsdelama%202017-10-14.osk)
+![screenshot006](https://github.com/Lixarious/LixariousSkins/assets/8029870/1cefeafd-11c8-41cf-98b0-cf65734c66c0)
+
 # [Azerino 08.09.2015](https://drive.google.com/drive/folders/1Ix5ga0qhYdR3kcB1VyqSAkP6Rlad9HD3?usp=drive_link)
 ![screenshot001](https://github.com/Lixarious/LixariousSkins/assets/8029870/f39d9524-b057-469c-8db8-2a4edcf97b9e)
 
