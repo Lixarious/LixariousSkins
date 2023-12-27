@@ -84,6 +84,9 @@ Old skins that I either don't/rarely use or are here for archive purposes
 </p>
 
 
+# [Millhiore Lite](https://drive.google.com/file/d/12uGatcQIYGihma6uCgevL6yvKg5-33Vx/view?usp=sharing)
+![screenshot145](https://github.com/Lixarious/LixariousSkins/assets/8029870/61421090-600e-4978-93bf-ea7503676156)
+
 # [-     #LixaSenko DT 2.4 (2020)](https://drive.google.com/file/d/1FnxvRIlHBXPnhAlnUKxAAYKrR01tPrQO/view?usp=drive_link)
 ![screenshot068](https://github.com/Lixarious/LixariousSkins/assets/8029870/380e9a9e-123b-465c-8b4e-742d75d2e2fc)
 
