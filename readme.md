@@ -46,6 +46,9 @@ Skins that are at the top, are those that I use most often
 # [-             noweeb    #LixaAkcel](https://drive.google.com/file/d/1OZj78pqd0Egnva7LaIv5hIMcbZxR7ItX/view?usp=drive_link) (2023)
 ![screenshot066](https://github.com/Lixarious/LixariousSkins/assets/8029870/147c60ec-769d-4401-a80e-91e4164d5240)
 
+# [giyokon edit](https://drive.google.com/file/d/1XvrDNqiYNTYY3vfsPVprDFZIip34zl0f/view?usp=sharing) (since 2023)
+![screenshot144](https://github.com/Lixarious/LixariousSkins/assets/8029870/750f18a7-04bf-40cc-b02a-87ec3b72dcfc)
+
 # [Rafis+HDDT (Lixarious Edit)](https://drive.google.com/file/d/1tVYkweM58dIhwV9GMPqfdfix-ks5Izim/view?usp=drive_link) (since 2022)
 ![screenshot070](https://github.com/Lixarious/LixariousSkins/assets/8029870/dd4c5d9e-52d3-4dde-8cd9-654622479e04)
 
