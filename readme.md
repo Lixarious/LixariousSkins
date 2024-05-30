@@ -6,7 +6,7 @@ Although, there are still a lot of skins that I need to list there.
 
 Message Lixarious#5906 if any links are broken
 
-* [**Liskolandia**](https://discord.gg/7NPfG5azbg)
+* [**Liskolandia (Closed)**](https://discord.gg/7NPfG5azbg)
 * [**Lixarious' Twitter**](https://twitter.com/Lixarious)
 
 
