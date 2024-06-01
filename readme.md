@@ -26,7 +26,7 @@ Skins that are at the top, are those that I use most often
 
 
 > [!WARNING]
-> Some skins may not show correctly in resolutions below 1920x1080.
+> Most skins may not show correctly in resolutions below 1920x1080.
 
 #
 
