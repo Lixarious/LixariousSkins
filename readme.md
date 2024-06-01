@@ -31,7 +31,8 @@ Skins that are at the top, are those that I use most often
 #
 
 
-
+# [newnachi 2.4dt](https://drive.google.com/file/d/1GWJxvbBhClT3dYiGK73hPsRc1BoyZPCk/view?usp=sharing) (~since 2023)
+![screenshot243](https://github.com/Lixarious/LixariousSkins/assets/8029870/081b186c-4e40-4468-9f36-646b8d31526e)
 
 # [newnachi 2.4a](https://drive.google.com/file/d/1WWTzfZIpunRorxmqyslz4SBGJb6QGbXD/view?usp=sharing) (since ~2023)
 ![screenshot242](https://github.com/Lixarious/LixariousSkins/assets/8029870/4a8628de-36a9-4de6-953c-d20ef07ca2ec)
