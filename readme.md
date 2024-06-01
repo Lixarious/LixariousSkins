@@ -46,14 +46,8 @@ Skins that are at the top, are those that I use most often
 # [Comfort Skin](https://osu.ppy.sh/community/forums/topics/424806?n=1) (seal)
 ![screenshot081](https://github.com/Lixarious/LixariousSkins/assets/8029870/d26b48b6-b0f9-4bed-8dd3-fa7eb299fe4b)
 
-# [-             noweeb    #LixaAkcel](https://drive.google.com/file/d/1OZj78pqd0Egnva7LaIv5hIMcbZxR7ItX/view?usp=drive_link) (2023)
-![screenshot066](https://github.com/Lixarious/LixariousSkins/assets/8029870/147c60ec-769d-4401-a80e-91e4164d5240)
-
 # [giyokon edit](https://drive.google.com/file/d/1XvrDNqiYNTYY3vfsPVprDFZIip34zl0f/view?usp=sharing) (since 2023)
 ![screenshot144](https://github.com/Lixarious/LixariousSkins/assets/8029870/750f18a7-04bf-40cc-b02a-87ec3b72dcfc)
-
-# [Rafis+HDDT (Lixarious Edit)](https://drive.google.com/file/d/1tVYkweM58dIhwV9GMPqfdfix-ks5Izim/view?usp=drive_link) (since 2022)
-![screenshot070](https://github.com/Lixarious/LixariousSkins/assets/8029870/dd4c5d9e-52d3-4dde-8cd9-654622479e04)
 
 # [Cookiezi 23 2017-08-31 DT](https://melonsoda0730.s-ul.eu/GmiyXtwx) (since 2018)
 ![screenshot077](https://github.com/Lixarious/LixariousSkins/assets/8029870/4edd9d7e-54ee-447b-96d8-3b53639bc74f)
@@ -81,6 +75,12 @@ Old skins that I either don't/rarely use or are here for archive purposes
 </p>
 
 #
+
+# [Rafis+HDDT (Lixarious Edit)](https://drive.google.com/file/d/1tVYkweM58dIhwV9GMPqfdfix-ks5Izim/view?usp=drive_link) (since 2022)
+![screenshot070](https://github.com/Lixarious/LixariousSkins/assets/8029870/dd4c5d9e-52d3-4dde-8cd9-654622479e04)
+
+# [-             noweeb    #LixaAkcel](https://drive.google.com/file/d/1OZj78pqd0Egnva7LaIv5hIMcbZxR7ItX/view?usp=drive_link) (2023)
+![screenshot066](https://github.com/Lixarious/LixariousSkins/assets/8029870/147c60ec-769d-4401-a80e-91e4164d5240)
 
 # [- newnachi DT (old)](https://drive.google.com/file/d/1S3lVgNKwUrg8HPMTq4zXyAXSBCAdOFl_/view) (since 2022)
 ![screenshot067](https://github.com/Lixarious/LixariousSkins/assets/8029870/9c1ec166-b9ff-4cbf-a44d-b22e56844cda)
