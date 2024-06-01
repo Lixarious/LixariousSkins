@@ -71,17 +71,12 @@ Skins that are at the top, are those that I use most often
 ![screenshot071](https://github.com/Lixarious/LixariousSkins/assets/8029870/28b4f45e-489d-4b60-9d0d-8c6e395a9c61)
 
 
-
-
-
-
-
-
-
 #
+
 <p align="center">
 Old skins that I either don't/rarely use or are here for archive purposes 
 </p>
+
 #
 
 # [- newnachi DT (old)](https://drive.google.com/file/d/1S3lVgNKwUrg8HPMTq4zXyAXSBCAdOFl_/view) (since 2022)
