@@ -43,6 +43,9 @@ Skins that are at the top, are those that I use most often
 # [-                    noel-simp-now](https://drive.google.com/file/d/1AGCt9Bbd8OBqqa-cKBC0e0hBe79kIPTX/view?usp=drive_link) (since 2022)
 ![screenshot075](https://github.com/Lixarious/LixariousSkins/assets/8029870/243f6da2-06dd-430f-9d01-2a9d025ed9ea)
 
+# [Jace 6.25 waffle](https://drive.google.com/file/d/1yCFYCrL9aCnrNH9-OSecqLa2PyzV4VRT/view?usp=sharing)
+![screenshot245](https://github.com/Lixarious/LixariousSkins/assets/8029870/da0030cb-271a-4d86-8eb1-709f9e31a773)
+
 # [Comfort Skin](https://osu.ppy.sh/community/forums/topics/424806?n=1) (seal)
 ![screenshot081](https://github.com/Lixarious/LixariousSkins/assets/8029870/d26b48b6-b0f9-4bed-8dd3-fa7eb299fe4b)
 
