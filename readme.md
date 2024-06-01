@@ -33,12 +33,8 @@ Skins that are at the top, are those that I use most often
 
 
 
-
-# [- newnachi DT](https://drive.google.com/file/d/1S3lVgNKwUrg8HPMTq4zXyAXSBCAdOFl_/view) (since 2022)
-![screenshot067](https://github.com/Lixarious/LixariousSkins/assets/8029870/9c1ec166-b9ff-4cbf-a44d-b22e56844cda)
-
-# [-                              newnachi 2.2](https://drive.google.com/file/d/14Yr-ubNgywLD8GHTPsfuKZiVIlGBPHUx/view?usp=sharing) (2023)
-![screenshot078](https://github.com/Lixarious/LixariousSkins/assets/8029870/37e94dca-0e58-4a22-ac10-876d40b5e084)
+# [newnachi 2.4a](https://drive.google.com/file/d/1WWTzfZIpunRorxmqyslz4SBGJb6QGbXD/view?usp=sharing) (since ~2023)
+![screenshot242](https://github.com/Lixarious/LixariousSkins/assets/8029870/4a8628de-36a9-4de6-953c-d20ef07ca2ec)
 
 # [-                    noel-simp-now](https://drive.google.com/file/d/1AGCt9Bbd8OBqqa-cKBC0e0hBe79kIPTX/view?usp=drive_link) (since 2022)
 ![screenshot075](https://github.com/Lixarious/LixariousSkins/assets/8029870/243f6da2-06dd-430f-9d01-2a9d025ed9ea)
@@ -86,6 +82,12 @@ Skins that are at the top, are those that I use most often
 Old skins that I either don't/rarely use or are here for archive purposes 
 </p>
 
+
+# [- newnachi DT (old)](https://drive.google.com/file/d/1S3lVgNKwUrg8HPMTq4zXyAXSBCAdOFl_/view) (since 2022)
+![screenshot067](https://github.com/Lixarious/LixariousSkins/assets/8029870/9c1ec166-b9ff-4cbf-a44d-b22e56844cda)
+
+# [-                              newnachi 2.2](https://drive.google.com/file/d/14Yr-ubNgywLD8GHTPsfuKZiVIlGBPHUx/view?usp=sharing) (2023)
+![screenshot078](https://github.com/Lixarious/LixariousSkins/assets/8029870/37e94dca-0e58-4a22-ac10-876d40b5e084)
 
 # [Millhiore Lite](https://drive.google.com/file/d/12uGatcQIYGihma6uCgevL6yvKg5-33Vx/view?usp=sharing)
 ![screenshot145](https://github.com/Lixarious/LixariousSkins/assets/8029870/61421090-600e-4978-93bf-ea7503676156)
