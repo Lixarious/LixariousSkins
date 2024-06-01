@@ -46,6 +46,12 @@ Skins that are at the top, are those that I use most often
 # [Jace 6.25 waffle](https://drive.google.com/file/d/1yCFYCrL9aCnrNH9-OSecqLa2PyzV4VRT/view?usp=sharing)
 ![screenshot245](https://github.com/Lixarious/LixariousSkins/assets/8029870/da0030cb-271a-4d86-8eb1-709f9e31a773)
 
+# [Bokamin's Fubuking V2](https://drive.google.com/file/d/1kcktIEF_vpPrUz_ALSbMWxci2y43D_Bk/view?usp=sharing)
+![screenshot026](https://github.com/Lixarious/LixariousSkins/assets/8029870/f3f37c88-b391-4f5c-9cd0-07814b464c2b)
+
+# [Bokamin's Fubuking DT](https://drive.google.com/file/d/1NGrAcuZ1OlezCzPCkToRN4X9WZcaOJy6/view?usp=sharing)
+![screenshot027](https://github.com/Lixarious/LixariousSkins/assets/8029870/dbbfe447-a9ae-4201-b6fe-9867e02b2b9a)
+
 # [Comfort Skin](https://osu.ppy.sh/community/forums/topics/424806?n=1) (seal)
 ![screenshot081](https://github.com/Lixarious/LixariousSkins/assets/8029870/d26b48b6-b0f9-4bed-8dd3-fa7eb299fe4b)
 
