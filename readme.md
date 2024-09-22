@@ -37,6 +37,9 @@ Skins that are at the top, are those that I use most often
 # [newnachi 2.4a](https://drive.google.com/file/d/1WWTzfZIpunRorxmqyslz4SBGJb6QGbXD/view?usp=sharing) (since ~2023)
 ![screenshot242](https://github.com/Lixarious/LixariousSkins/assets/8029870/4a8628de-36a9-4de6-953c-d20ef07ca2ec)
 
+# [siina x bocchi (skin mix) no fp](https://drive.google.com/file/d/1DHGKa3Qv_uioQQ-0M4QCL5fsdM1bUQW1/view?usp=sharing) (since 2024)
+![screenshot004](https://github.com/user-attachments/assets/ecf60d86-2d30-4fa5-a240-70b6e8e0ca8c)
+
 # [tekkitomathi 9taj](https://drive.google.com/file/d/1ap2z4fk9Z1j1_GZwNcW8y7wFG5U5ohXJ/view?usp=sharing) (since 2024)
 ![screenshot244](https://github.com/Lixarious/LixariousSkins/assets/8029870/ae01cb60-fa5e-4d9c-9980-9590a28111e9)
 
