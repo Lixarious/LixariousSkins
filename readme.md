@@ -1,5 +1,5 @@
 # LixariousSkins
-# Last update: 01/06/2024 13:34 
+# Last update: 02/09/2024 12:36
 
 I will try my best to keep this updated.
 Although, there are still a lot of skins that I need to list there.
@@ -79,6 +79,8 @@ Skins that are at the top, are those that I use most often
 # [WaksonBlue](https://circle-people.com/wp-content/Skins/Wakson/[%20Wakson%20]%202017-11-10.osk) (since 2018)
 ![screenshot071](https://github.com/Lixarious/LixariousSkins/assets/8029870/28b4f45e-489d-4b60-9d0d-8c6e395a9c61)
 
+# [BubbleSkin20-10-09](https://drive.google.com/file/d/1MJzm0yI5bVFB6dGN4mBqaBRH271KTLJV/view?usp=drive_link)
+![screenshot006](https://github.com/user-attachments/assets/95c7ee18-4214-4b98-8609-98dcad464428)
 
 #
 
