@@ -86,7 +86,9 @@ Skins that are at the top, are those that I use most often
 Old skins that I either don't/rarely use or are here for archive purposes 
 </p>
 
-#
+
+# [Niko v6.32 SD](https://drive.google.com/file/d/1nvAsdPX-WevtvSbgdtp5EXzcTjubtz4Z/view?usp=drive_link)
+![screenshot005](https://github.com/user-attachments/assets/d78c9969-abeb-45d8-9e18-66607f8e6ffa)
 
 # [Rafis+HDDT (Lixarious Edit)](https://drive.google.com/file/d/1tVYkweM58dIhwV9GMPqfdfix-ks5Izim/view?usp=drive_link) (since 2022)
 ![screenshot070](https://github.com/Lixarious/LixariousSkins/assets/8029870/dd4c5d9e-52d3-4dde-8cd9-654622479e04)
